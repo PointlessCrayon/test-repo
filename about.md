@@ -1,3 +1,3 @@
 # About 
 
-some history
+some history is called Past!
